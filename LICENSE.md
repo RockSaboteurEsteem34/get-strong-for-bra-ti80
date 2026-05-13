@@ -1,4 +1,4 @@
-#  
+#  get strong for brainrots Scripts new is the best get strong for brainrots Script, featuring teleport and custom skins. Safe and powerful for all your
 
 
 
